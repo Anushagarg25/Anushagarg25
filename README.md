@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Anusha Garg
+- 🌱 I’m currently pursuing BTech from Vellore Institute of Technology,Vellore
